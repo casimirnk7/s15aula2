@@ -1,1 +1,1 @@
-# s15aula2
+ Polícia Civil teve acesso a áudios em que influenciadores dão detalhes de como funciona a divulgação do "Jogo do Tigrinho". Um deles é de Verolayne, com mais de 1 milhão de seguidores nas redes sociais, cobra R$ 80 mil para divulgar o '"Jogo do Tigrinho" no seu perfil, mas com uma condição, ela não quer jogar, apenas simular a aposta. A própria influenciadora confirmou em uma conta reserva que o áudio é dela. A gravação faz parte das investigações que resultaram na Operação Game Over, realizada nesta segunda-feira (17) em Alagoas (ouça acima).
